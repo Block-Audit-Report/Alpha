@@ -1,3 +1,3 @@
 # Alpha
 
-![Certificate_ALPHA](https://user-images.githubusercontent.com/81981737/147587591-e79473b2-7ebb-4a3f-9358-7e0255c2a02d.jpg)
+![alphalaunchpad](https://user-images.githubusercontent.com/121312707/229454929-3f8e7189-328c-4908-8ea7-bbc18ca439dd.png)
